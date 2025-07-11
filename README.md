@@ -1,4 +1,7 @@
 ## Hi there 👋
+esta con emerson!!!! 
+ing.Sistemas
+deja de creer en el destino y empieza por aserlos realidad tus sueños
 
 <!--
 **Emerson789/Emerson789** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
